@@ -41,3 +41,5 @@
 ![Alt text](<20-React App - Personal_ Microsoft​ Edge 26_06_2023 07_17_13 p. m..png>)
 
 ![Alt text](<21-React App - Personal_ Microsoft​ Edge 26_06_2023 07_17_20 p. m..png>)
+
+![Alt text](<22-JSM Media y 14 páginas más - Personal_ Microsoft​ Edge 27_06_2023 03_29_08 p. m..png>)
